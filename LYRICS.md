@@ -35,11 +35,15 @@ Je sens l'esprit du félinm'envahir
 À ce stadeseul le sang me procure du plaisir
 Mes griffes gravent les couleurs de l'Empire
 Plus grand que celui d'Alexandre dont je suis le défenseur
+
 L'École du micro d'argent
 L'École du micro d'argent
+Je représente
 L'École du micro d'argent
 L'École du micro d'argent
+Je représente
 L'École du micro d'argent
 L'École du micro d'argent
+Je représente
 L'École du micro d'argent
 L'École du micro d'argent
